@@ -7,7 +7,6 @@ vfiivjovj]fouhfv
 vfihviohohoh
 ghoivni
 i eas the
-fkso
-v
+fks
 djfp'f
 kfojkv]ff
